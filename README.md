@@ -6,6 +6,8 @@ Welcome to my GitHub profile!
 
 💼 I'm currently seeking opportunities to apply my knowledge and collaborate on exciting projects.
 
-📫 You can reach me at danielmenajimenez89@gmail.com. I'm excited to connect with you!
+📫 You can reach me at danielmenajimenez89@gmail.com I'm excited to connect with you!
+
+🔗 Feel free to check out my LinkedIn profile: https://www.linkedin.com/in/daniel-mena-jimenez-827884261/
 
 Thanks for visiting my profile! 😄
